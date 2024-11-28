@@ -13,4 +13,4 @@ Para ter acesso a esse site entre <https://julia-coelhz.github.io>
 
 ## Autores
 Abaixo alguns links para minhas redes:
-- (Julia Coelho) [https://instagram.com/juliacoelhz]
+- [Instagram] (https://instagram.com/julia.coelhz)
